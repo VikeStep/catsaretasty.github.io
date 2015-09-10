@@ -19,7 +19,7 @@ latest track by the name of "Fever" which has been offered up as a
 
 As word spread of our event, we were joined by several other artists who wished to jump in and chat to the community.
 
-<img class="u-img-center" src="http://i.imgur.com/cJBGK7d.png"/>
+<img class="u-img-center" src="https://i.imgur.com/cJBGK7d.png"/>
 
 Which, despite the slight drop in user numbers, still resulted in the chat moving a mile a second. A lot of fun was had!
 
