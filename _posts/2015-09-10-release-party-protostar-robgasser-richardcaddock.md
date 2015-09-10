@@ -1,5 +1,5 @@
 ---
-title: Tastycat's "well, why not?" event!
+title: Release Party with Protostar, Rob Gasser and Richard Caddock!
 ---
 
 Good morning, good afternoon, good evening, or good...whatever else it could possibly be! It certainly has been a while
